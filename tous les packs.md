@@ -22,3 +22,12 @@
 
 # [Venexis Shant v4 BlackRed](https://www.mediafire.com/file/38sqhn5ktrl2bog/%2521_%25C2%25A7__venexis_shant_v4_blackred.zip/file) 
 ![](https://i.imgur.com/lrs019C.png)
+
+# [Lilac v1 orange](https://www.mediafire.com/file/wauvyeiiv1jzfbv/%2521_lilac_v1_ORANGE.zip/file) 
+![](https://i.imgur.com/v8dfDmn.png)
+
+# [Rosea Revamp Peach Edit](https://www.mediafire.com/file/w32xo55yqcsy4x2/%2521__%25C2%25A75Ro%25C2%25A7dse%25C2%25A7ca_%255BPeach_test%255D.rar/file) 
+![](https://i.imgur.com/8fqtSIy.png)
+
+# [ApxXDnt V3 Red Moon](https://www.mediafire.com/file/21b0dl9z3thuxrp/%2521_ApxXDnt_V3_Red_Moon.rar/file) 
+![](https://twitter.com/emrcnnnnn/status/1356547202311725057/photo/3)
