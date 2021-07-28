@@ -14,14 +14,20 @@
 # [!Mashup V5](https://www.mediafire.com/file/qz8ak6mi86f46jv/%2521_mashup_v5.rar/file) 
 ![](https://pbs.twimg.com/media/E0jnfhaWEAUbNSv?format=jpg&name=large)
 
+# [Shant v4 BlackRed](https://www.mediafire.com/file/38sqhn5ktrl2bog/%2521_%25C2%25A7__venexis_shant_v4_blackred.zip/file) 
+![](https://i.imgur.com/lrs019C.png)
+
+# [Shant Pack V4 Peach](https://resourcepacks24.de/resourcepack/284579) 
+![](https://resourcepacks24.de/storage/screenshots/284579-9350490d-7333-4cfd-989a-740cdd689066.jpg)
+
 # [Shant Pack v4 Pink Magenta](http://www.mediafire.com/file/gkxawy3ww7mar5r/%2521_Shant_Pack_V4_Pink_Magenta.rar/file) 
 ![](https://pbs.twimg.com/media/EvVVOUyXUAYN0dW?format=jpg&name=large)
 
-# [Venexis pax10 bluegrey edit (longswords)](http://www.mediafire.com/file/rm6chwr7exy0pnf/%2521_%25C2%25A7__%2528longswords%2529_venexis_pax10_bluegrey_edit.zip/file) 
-![](https://i.imgur.com/PLxA3jS.png)
+# [Shant Pack vFinale Light Pink](mediafire.com/file/n6vgfgsk64rg1uf/!++++++Shant+Pack+vFinale+Light+Pink.rar/file) 
+![](https://pbs.twimg.com/media/E0P0UZ7WYAQ522G?format=jpg&name=large)
 
-# [Venexis Shant v4 BlackRed](https://www.mediafire.com/file/38sqhn5ktrl2bog/%2521_%25C2%25A7__venexis_shant_v4_blackred.zip/file) 
-![](https://i.imgur.com/lrs019C.png)
+# [Pax10 bluegrey edit (longswords)](http://www.mediafire.com/file/rm6chwr7exy0pnf/%2521_%25C2%25A7__%2528longswords%2529_venexis_pax10_bluegrey_edit.zip/file) 
+![](https://i.imgur.com/PLxA3jS.png)
 
 # [Lilac v1 orange](https://www.mediafire.com/file/wauvyeiiv1jzfbv/%2521_lilac_v1_ORANGE.zip/file) 
 ![](https://i.imgur.com/v8dfDmn.png)
@@ -37,3 +43,45 @@
 
 # [Dynamic Duo Dark Blue](http://www.mediafire.com/file/hmkxb64u8ek6rv8/!+++++++Dynamic+Duo+Dark+Blue.rar/file) 
 ![](https://pbs.twimg.com/media/EuIRC1dWYAER4ob?format=jpg&name=large)
+
+# [Shant Pack V4 Peach](https://resourcepacks24.de/resourcepack/284579) 
+![](https://resourcepacks24.de/storage/screenshots/284579-9350490d-7333-4cfd-989a-740cdd689066.jpg)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
