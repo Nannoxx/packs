@@ -1,11 +1,6 @@
- RyuK super rad main skins compilation
+# Si un lien de fonctionne plus prevenez moi, c'est pas dit que je le change mais on sait jamais.
 
-# [HP Bar](https://i.imgur.com/dh79Bwo.png)
-![](https://i.imgur.com/dh79Bwo.png)
-
-# If a link is down let @snowedcoffee or @mzruu know.
-
-# Some of the skins RyuK uses might be private or unfinished and may not be listed. 
+# Certains packs ne sont pas forcément listés puisque j'update pas toujours.
 
 # [- RYUKAYYY wit da MONKOO](https://mega.nz/file/8bwCnRSZ#zt06DQ0aka5Nldc8dz0h_LU5Ph6UHj5Vxlz8c7sBGdc) 
 ![](https://osu.ppy.sh/ss/16525543/bc8f)
