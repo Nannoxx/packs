@@ -30,4 +30,4 @@
 ![](https://i.imgur.com/8fqtSIy.png)
 
 # [ApxXDnt V3 Red Moon](https://www.mediafire.com/file/21b0dl9z3thuxrp/%2521_ApxXDnt_V3_Red_Moon.rar/file) 
-![](https://twitter.com/emrcnnnnn/status/1356547202311725057/photo/3)
+![](https://pbs.twimg.com/media/EtNsfEUXcAEfHA4?format=jpg&name=medium)
