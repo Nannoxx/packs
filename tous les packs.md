@@ -5,6 +5,12 @@
 # [ANTI SHANT PACK (à mettre au dessus des Shant Pack pour les blocks)](https://www.mediafire.com/file/axln3nq2pepfmdm/!+++++++ANTI+SHANT+PACK.zip/file) 
 ![](https://i.imgur.com/t1zOAjs.png)
 
+# [Azurine UHC Red Clouds](https://www.mediafire.com/file/d5xbr3vym2aofgj/!+++++Azurine+UHC+Red+Clouds.rar/file) 
+![](https://pbs.twimg.com/media/E0P0YWnX0AU_cFK?format=jpg&name=large)
+
+# [Azurine UHC Pink Violet](https://www.mediafire.com/file/cjxptt0r81jevvv/%2521_Azurine_UHC_Pink_Violet.rar/file) 
+![](https://pbs.twimg.com/media/ExukQIYWEAIAsEB?format=jpg&name=large)
+
 # [Brndy Ice Rose](https://www.mediafire.com/file/r1nzor95q2hzs8e/%2521_Brndy_Ice_Rose.rar/file) 
 ![](https://pbs.twimg.com/media/EwH8ghyWEAYcZPf?format=jpg&name=large)
 
@@ -26,6 +32,9 @@
 # [Shant Pack vFinale Light Pink](mediafire.com/file/n6vgfgsk64rg1uf/!++++++Shant+Pack+vFinale+Light+Pink.rar/file) 
 ![](https://pbs.twimg.com/media/E0P0UZ7WYAQ522G?format=jpg&name=large)
 
+# [W.A.R Peach](https://www.mediafire.com/file/vnrfsf42tbvdk1w/%2521_W.A.R._Peach.rar/file) 
+![](https://pbs.twimg.com/media/EysY7DaWQAEY1r4?format=jpg&name=large)
+
 # [Pax10 bluegrey edit (longswords)](http://www.mediafire.com/file/rm6chwr7exy0pnf/%2521_%25C2%25A7__%2528longswords%2529_venexis_pax10_bluegrey_edit.zip/file) 
 ![](https://i.imgur.com/PLxA3jS.png)
 
@@ -34,6 +43,9 @@
 
 # [Rosea Revamp Peach Edit](https://www.mediafire.com/file/w32xo55yqcsy4x2/%2521__%25C2%25A75Ro%25C2%25A7dse%25C2%25A7ca_%255BPeach_test%255D.rar/file) 
 ![](https://i.imgur.com/8fqtSIy.png)
+
+# [Rosea Revamp Mint](http://www.mediafire.com/file/18umpyusbjm31hk/%2521_%25C2%25A7aMint_%25C2%25A75Rosea_%25C2%25A7cRevamp.rar/file) 
+![](https://i.imgur.com/DfE6eFU.png)
 
 # [ApxxDnt v3](https://pvprp.com/assets/packzips/Apexay%20x%20Danteh%20V3Apexay/!%20%20%20%20%20%20%C2%A7bApxXDnt%20V3.zip) 
 ![](https://i.imgur.com/LXGJVLN.png)
@@ -44,8 +56,11 @@
 # [Dynamic Duo Dark Blue](http://www.mediafire.com/file/hmkxb64u8ek6rv8/!+++++++Dynamic+Duo+Dark+Blue.rar/file) 
 ![](https://pbs.twimg.com/media/EuIRC1dWYAER4ob?format=jpg&name=large)
 
-# [Shant Pack V4 Peach](https://resourcepacks24.de/resourcepack/284579) 
-![](https://resourcepacks24.de/storage/screenshots/284579-9350490d-7333-4cfd-989a-740cdd689066.jpg)
+# [Deep Sky Snow](https://www.mediafire.com/file/wrfstiw8xezoqz8/%2521_Deep_Sky_Snow.rar/file) 
+![](https://pbs.twimg.com/media/EysY8l0WEAAl3gD?format=jpg&name=large)
+
+
+
 
 
 
