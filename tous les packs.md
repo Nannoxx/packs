@@ -29,5 +29,11 @@
 # [Rosea Revamp Peach Edit](https://www.mediafire.com/file/w32xo55yqcsy4x2/%2521__%25C2%25A75Ro%25C2%25A7dse%25C2%25A7ca_%255BPeach_test%255D.rar/file) 
 ![](https://i.imgur.com/8fqtSIy.png)
 
+# [ApxxDnt v3](https://pvprp.com/assets/packzips/Apexay%20x%20Danteh%20V3Apexay/!%20%20%20%20%20%20%C2%A7bApxXDnt%20V3.zip) 
+![](https://i.imgur.com/LXGJVLN.png)
+
 # [ApxXDnt V3 Red Moon](https://www.mediafire.com/file/21b0dl9z3thuxrp/%2521_ApxXDnt_V3_Red_Moon.rar/file) 
 ![](https://pbs.twimg.com/media/EtNsfEUXcAEfHA4?format=jpg&name=medium)
+
+# [Dynamic Duo Dark Blue](http://www.mediafire.com/file/hmkxb64u8ek6rv8/!+++++++Dynamic+Duo+Dark+Blue.rar/file) 
+![](https://pbs.twimg.com/media/EuIRC1dWYAER4ob?format=jpg&name=large)
